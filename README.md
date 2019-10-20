@@ -6,7 +6,10 @@
 
 ## Important!
 
-As of FIFA 20 I've opted to discontinue this free product due to the increased demand in support, if you're interested in a ready-to-go FIFA 20 Autobuyer with 2x as many features as last year, you can click [Here](https://curtiscrewe.co.uk/autobuyer) to purchase for a one-time fee of £75 GBP.
+As of FIFA 20 I've opted to discontinue this free product due to the increased demand in support, if you're interested in a ready-to-go FIFA 20 Autobuyer with 2x as many features as last year, you can click [Here](https://curtiscrewe.co.uk/autobuyer) or directly below to purchase for a one-time fee of £75 GBP.
+
+## Purchase!
+[![paypal](https://www.paypalobjects.com/en_US/GB/i/btn/btn_buynowCC_LG.gif)](https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=T8HW6JF54976S)
 
 ## Purchase Enquiries
 
