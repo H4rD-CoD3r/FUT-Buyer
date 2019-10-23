@@ -18,6 +18,9 @@ FIFA 20 has only been out a few weeks & we've already pushed out 3 updates to ke
 
 If you're interested in getting your hands on this system, you can purchase below to get yourself botting right away!
 
+## Preview
+![FIFA 20 Autobuyer](https://curtiscrewe.co.uk/images/autobuyer.png)
+
 ## Purchase!
 [![paypal](https://www.paypalobjects.com/en_US/GB/i/btn/btn_buynowCC_LG.gif)](https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=T8HW6JF54976S)
 
